@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @Hundli
-- 👀 I’m interested in curating a community for developers on the solana and other crypto ecosystems. 
+- 👀 I’m interested in you. 
 - 🌱 I’m currently learning how not to be a degen and to actually contribute to a community. 
-- 💞️ I’m looking to collaborate on building a foundational structure that allows artists and developers to meet and mingle and explore new ideas. 
+- 💞️ I’m looking to collaborate on building a dashboard. I like dashboards. 
 - 📫 How to reach me @hundli6009 on twitter. #hundli6009 on discord. 
 
 <!---
